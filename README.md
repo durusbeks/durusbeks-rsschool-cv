@@ -1,1 +1,1 @@
-# durusbeks-rsschool-cv
+https://durusbeks.github.io/rsschool-cv/cv
